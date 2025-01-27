@@ -1,3 +1,5 @@
+[![An image of @rahahahaa's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/rahahahaa)](https://holopin.io/@rahahahaa)
+
 # Hi, I'm Rahul Bhat 👋
 
 ![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExMnphZDdnZjhsbXg2NGE3YjVpOXozN2poZnY4OXhreGl2aXFrZzl5ZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/6ib6KPmkeAjDTxMxij/giphy.gif)
@@ -11,8 +13,6 @@ I'm a **full-stack developer** and **tech enthusiast** passionate about building
 
 ### 
 ![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExODRsaHV5cTA4dmQ1ZzFucWIwY2pseWcwcG4zczNqcG45dG0xdnVkZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/78XCFBGOlS6keY1Bil/giphy.gif).
-
-[![An image of @rahahahaa's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/rahahahaa)](https://holopin.io/@rahahahaa)
 
 ## 📫 Contact Me
 - [LinkedIn](https://linkedin.com/in/rahulbhat06)
