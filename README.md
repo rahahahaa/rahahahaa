@@ -8,4 +8,4 @@ I’m always learning and excited to collaborate with like-minded people to make
 
 
 ## 📫 Contact Me
-[LinkedIn](https://linkedin.com/in/rahul-bhat) | [Twitter](https://twitter.com/rahul_bhat) | [Email](mailto:rahulbhat7169@gmail.com)
+[LinkedIn](https://linkedin.com/in/rahulbhat06) | [Twitter](https://x.com/RAHAHAHAA?t=AH_lyEkLLW2RH_eaB-9j2w&s=09) | [Email](mailto:rahulbhat7169@gmail.com)
