@@ -20,8 +20,7 @@ I'm a **full-stack developer** and **tech enthusiast** passionate about building
 ## 🎉 Fun GIFs
 Just to keep things light, here's some GIFs showing my excitement for coding, development, and innovation! 😄
 
-### When a project goes live...
-![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExdGpiODByMTNyMjAwdjRtejRpaGRsMW5pZHU3NTVvODg5cmlkN21qcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/f3iwJFOVOwuy7K6FFw/giphy.gif)
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExODRsaHV5cTA4dmQ1ZzFucWIwY2pseWcwcG4zczNqcG45dG0xdnVkZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/78XCFBGOlS6keY1Bil/giphy.gif).
 
 ### When the code finally works...
 ![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExOTFtYTJqanY2bTg3NjZudTYzd2dqNnB0NXc2MXlnNWRkYnY4dmcwdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/OLPQ6z2hlHmwFc4Hso/giphy.gif)
