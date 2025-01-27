@@ -9,3 +9,6 @@ I’m always learning and excited to collaborate with like-minded people to make
 
 ## 📫 Contact Me
 [LinkedIn](https://linkedin.com/in/rahulbhat06) | [Twitter](https://x.com/RAHAHAHAA?t=AH_lyEkLLW2RH_eaB-9j2w&s=09) | [Email](mailto:rahulbhat7169@gmail.com)
+
+
+![Me](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExdGpiODByMTNyMjAwdjRtejRpaGRsMW5pZHU3NTVvODg5cmlkN21qcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/f3iwJFOVOwuy7K6FFw/giphy.gif)
